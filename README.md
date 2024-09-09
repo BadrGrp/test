@@ -1,1 +1,1 @@
-allumez le feux
+allume le feu
